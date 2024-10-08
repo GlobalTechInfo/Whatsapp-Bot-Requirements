@@ -58,29 +58,4 @@ mongodb+srv://King-MdIsbot:King-MdIsbot@cluster0.hikjrg2.mongodb.net/?retryWrite
 
 3: Api = 7130a4dk
 
- ***BOTCAHX_API [`Click Here To Get Unlimited`](https://github.com/naveeddogar/THINGS-For-Bots/blob/main/Api&Uri/README%20(1).md)***
- 
- 
- 
- 
- 
-Enjoy❤❤❤❤
-
-----
-
-# Plugins For All WhatsApp Bots
-***Hermit-MD Plugin[`Click Here To Get`](https://github.com/naveeddogar/THINGS-For-Bots/blob/main/Plugins/README%20(1).md)***
-
-***Lyfee-MD Plugin[`Click Here To Get`](https://github.com/naveeddogar/THINGS-For-Bots/blob/main/Plugins/README%20(2).md)***
-
-***Secktor-MD Plugin[`Click Here To Get`](https://github.com/naveeddogar/THINGS-For-Bots/blob/main/Plugins/README%20(3).md)***
-
-***Prabath-MD Plugin[`Click Here To Get`](https://github.com/naveeddogar/THINGS-For-Bots/blob/main/Plugins/README%20(4).md)***
-
-***Suhail-MD Plugin[`Click Here To Get`](https://github.com/naveeddogar/THINGS-For-Bots/blob/main/Plugins/README%20(5).md)***
-
-***Xlicon-MD Plugin[`Click Here To Get`](https://github.com/naveeddogar/THINGS-For-Bots/blob/main/Plugins/README%20(6).md)***
-
-
----
-
+🩷🩷
